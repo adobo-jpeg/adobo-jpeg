@@ -7,7 +7,7 @@
 
 <p><img src="https://gcdnb.pbrd.co/images/R6sKB7IjHNkX.png?o=1" width="389.25" height="40">
 <p> King George III factkin + nonsharing yume |  If you judge my yumeship/factkin I will block you on the spot idc if you're joking or not
-<p> C+H / DNC | I prefer W2I | send stuff on my strawpage/ata PLS | discord: yitqsxo
+<p> C+H / DNC | I prefer W2I | send stuff on my atabook PLS | discord: yitqsxo
 
 <a href="https://yitqsxo.straw.page/">main strawpage</a> <a href="https://disperagioia.straw.page/">second strawpage</a> <a href="https://pronouns.cc/@tokiko">pronouns.cc</a> <a href="https://yitqsxo.atabook.org/?page=1">SIGN MY ATA NOW!</a>
 
