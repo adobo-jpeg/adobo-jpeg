@@ -3,8 +3,6 @@
   <h1>Rus - Elias - Elliot</h1>
 <b>thou/thee - ye/yeir</b>
 
-<p><img src="https://gcdnb.pbrd.co/images/rAVyKahbTS6K.png?o=1">
-
 <p><img src="https://gcdnb.pbrd.co/images/R6sKB7IjHNkX.png?o=1" width="389.25" height="40">
 <p> C+H / DNC | I prefer W2I | send stuff on my atabook PLS
 
